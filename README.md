@@ -1,2 +1,2 @@
 # AmadeusAlves.github.io
-O meu site
+O sapatox é gay
